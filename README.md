@@ -1,0 +1,2 @@
+# Milehighmycology.github.io
+Educational
